@@ -1,1 +1,1 @@
-The Developer
+The Developer Hub is back
